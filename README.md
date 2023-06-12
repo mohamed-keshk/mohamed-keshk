@@ -5,7 +5,7 @@
 
 💼 Currently, I'm an Innovation Hub Executive at Nile University, providing technical support, consulting researchers and startups. 🌊🚀
 
-🔬 I'm experienced in coordinating with both hardware and mechanical teams, ensuring seamless production.🔭
+🔬 I'm experienced in coordinating with both Mechanical and Electrical teams, ensuring seamless production.🔭
 
 🎓 Education-wise, I hold a Bachelor's degree in Mechatronics Engineering from Nile University. 💪
 
