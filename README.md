@@ -14,4 +14,4 @@
 🤜🤛 Let's collaborate and bring innovation to life! Feel free to explore my projects and get in touch.🌟🚀
 
 📧 Email: Mohamed.t.keshk@gmail.com
-🔗 LinkedIn: linkedin.com/in/mohamed-t-keshk
+🔗 LinkedIn: [linkedin.com/in/mohamed-t-keshk](linkedin.com/in/mohamed-t-keshk)
